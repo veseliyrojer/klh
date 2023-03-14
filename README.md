@@ -1,1 +1,0 @@
-# veseliyrojer.github.io
